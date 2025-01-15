@@ -19,6 +19,6 @@ Criei um conteúdo no chat GPT visando um público alvo o qual me encaixo, para 
 
 ## 🚀 Resultados
 
-
+https://github.com/alineaglio/lab-natty-or-not/blob/main/E-book%20Aline.pdf
 
 
